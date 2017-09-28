@@ -1,3 +1,6 @@
+Jaypee University of Engineering & Technology,Guna
+
+Model of united Nation (Project Website)
 
 Because being lazy is Being JUETian!
 
